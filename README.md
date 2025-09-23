@@ -1,1 +1,1 @@
-![ଳ hum cosmo dandys world](https://github.com/user-attachments/assets/dd5a71b0-97c0-4ea7-a91c-3552aaf6a5b7)
+![Твистед Космо🌼](https://github.com/user-attachments/assets/3c79919f-cf33-495c-9c93-8f3078075fc1)
