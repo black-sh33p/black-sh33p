@@ -1,1 +1,1 @@
-  ![download (2)](https://github.com/user-attachments/assets/a7d7270d-f9f8-4bed-9b99-f3d3fc14d043)
+<img width="329" height="340" alt="Skærmbillede 2025-09-24 173700" src="https://github.com/user-attachments/assets/259218e3-e346-4f60-aa50-b544fdb2e90f" />
