@@ -1,1 +1,1 @@
-![FRUITCAKE ❤_🩹❤_🩹❤_🩹](https://github.com/user-attachments/assets/ce08e261-27bd-4bef-b298-2b775ded056c)
+<img width="326" height="264" alt="Skærmbillede 2025-09-16 202420" src="https://github.com/user-attachments/assets/5911e19a-fd68-43fa-8559-f14d5fa90243" />
