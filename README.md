@@ -1,1 +1,1 @@
-![cosmo!!](https://github.com/user-attachments/assets/2ada3f25-b1d2-49e6-abaf-bb8ae78efcbe)
+![IMG_1417](https://github.com/user-attachments/assets/619f2e1d-960e-4918-a4d0-d14242179982)
