@@ -1,1 +1,1 @@
-![Cosmo dandys world](https://github.com/user-attachments/assets/239679cc-c1e4-41b7-98ec-4caf4c6e0dd3)
+![IMG_1423](https://github.com/user-attachments/assets/17bd314b-b09f-43b8-b2d7-32692739f707)
