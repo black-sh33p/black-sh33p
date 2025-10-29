@@ -5,7 +5,7 @@
 ## 🍫🍓 BYI : im the ceo of fruitcake and spotify (vee x boxten) dont shove the fact that you hate my ships in my face - im not trying to force people into liking the ships !!
 
 
-imma just put my art here... ok??
+## imma just put my art here... ok??
 ![IMG_3417](https://github.com/user-attachments/assets/46488e65-aa31-4472-a421-3c107cbfe8e3)
 <img width="746" height="1214" alt="IMG_3434" src="https://github.com/user-attachments/assets/3343b33f-5581-47a0-b3f1-c2dda364905e" />
-this is unfinished but i'll repost it when i finish it
+## this is unfinished but i'll repost it when i finish it
