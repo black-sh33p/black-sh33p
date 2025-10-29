@@ -7,3 +7,4 @@
 
 imma just put my art here... ok??
 ![IMG_3417](https://github.com/user-attachments/assets/46488e65-aa31-4472-a421-3c107cbfe8e3)
+<img width="746" height="1214" alt="IMG_3434" src="https://github.com/user-attachments/assets/3343b33f-5581-47a0-b3f1-c2dda364905e" />
