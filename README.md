@@ -10,7 +10,7 @@
 
 𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** i go by she/her but its fine to use they/them if you dont know me very well !! ꕀ **]** 𓏻
 
-𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** ***dni list*** !! 𓏻 **:** <pre> **racist people, homophobia, darkshippers, problematic people** 𓏻 𓏻 </pre>
+𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** ***dni list*** !! 𓏻 **:** <pre> **racist people, homophobic people, darkshippers, problematic people** 𓏻 𓏻 </pre>
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
