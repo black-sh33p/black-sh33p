@@ -6,7 +6,7 @@
 
 ![🍫🍓](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=🍫🍓)
 
-𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** hi!! ꕀ im lilly but you can also call me cosmo **]** (..◜ᴗ◝..) - !! 𓏻
+𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** hi!! ꕀ im lilly but you can also call me cosmo or sheep **]** (..◜ᴗ◝..) - !! 𓏻
 
 𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** i go by she/her but its fine to use they/them if you dont know me very well !! ꕀ **]** 𓏻
 
