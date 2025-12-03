@@ -15,6 +15,7 @@
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <img width="1500" height="500" alt="Untitled304_20251114174133" src="https://github.com/user-attachments/assets/eb837e2f-df81-4757-a3e2-c8a03d0ce3ad" />
+
 i'll probably come back to this but im to lazy rn
 
 
