@@ -4,7 +4,7 @@
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-![🍫🍓](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=🍫🍓)
+![୨ৎ](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=୨ৎ)
 
 𓎢𓎠𓎟𓎠𓎡 ┆┆  ꕀꕀꕀ **[** hi!! ꕀ im lilly but you can also call me cosmo or sheep **]** (..◜ᴗ◝..) - !! 𓏻
 
