@@ -3,7 +3,7 @@
 
 
 ![୨ৎ](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=୨ৎ)
-
+𝗂𝗆 𝗍𝗈 𝗅𝖺𝗓𝗒 𝗍𝗈 𝗉𝗎𝗍 𝗍𝖾𝗑𝗍
 
 ![7s5ni5](https://github.com/user-attachments/assets/56b51d78-7699-446d-bade-7dfc6b0d5321)
 ![lxz13l](https://github.com/user-attachments/assets/a3729078-c08d-40c9-9e32-5ca0f0f75b44)
