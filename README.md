@@ -1,3 +1,4 @@
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f51bc3f8-3287-45ec-8409-9eedb4518cb2" />
 
 ![୨ৎ](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=୨ৎ)
 
