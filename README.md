@@ -1,4 +1,4 @@
-<img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFB6C1&center=true&vCenter=true&width=950&font=Fira+Code&weight=700&lines=+ᵇᵃᵏᵉᵈ+ᶠʳᵉˢʰ+ᶠᵒʳ+ʸᵒᵘ+" alt="typing animation"></h1
+<img src="https://readme-typing-svg.herokuapp.com?size=34&duration=4200&pause=1000&color=FFB6C1&center=true&vCenter=true&width=950&font=Fira+Code&weight=700&lines=+ᵇᵃᵏᵉᵈ+ᶠʳᵉˢʰ+ᶠᵒʳ+ʸᵒᵘ+" alt="typing animation"><
 
 
 <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/951a7d05-b6ff-4acf-ad85-51b588b0362a" />
