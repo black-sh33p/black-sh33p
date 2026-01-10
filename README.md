@@ -2,7 +2,7 @@
 
 
 <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/951a7d05-b6ff-4acf-ad85-51b588b0362a" />
-![tumblr_9f63d4670d917f555b9ceab9e4ae63ef_dc7e06ed_100](https://github.com/user-attachments/assets/30d4b111-0fb5-4fca-9fd1-667fff19385b)
+ ![tumblr_9f63d4670d917f555b9ceab9e4ae63ef_dc7e06ed_100](https://github.com/user-attachments/assets/30d4b111-0fb5-4fca-9fd1-667fff19385b)
 
 
 ![୨ৎ](https://komarev.com/ghpvc/?username=black-sh33p&color=ffd4e4&style=flat&label=୨ৎ)
