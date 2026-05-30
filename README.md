@@ -27,7 +27,7 @@ Im not a good person to interact first unless i am with my friends though i some
 
 ✚   ✚   ✚
 
-Im mostly at the dandys world area at the around the market sometimes the hetalia area and spawn
+Im mostly at the dandys world area around the market sometimes the hetalia area and spawn
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
