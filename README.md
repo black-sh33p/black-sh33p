@@ -7,7 +7,7 @@
 
 
 
-  <sub>![](https://komarev.com/ghpvc/?username=black-sh33p&label=teacups&color=d584be&style=plastic)</sub>
+  <sub>![](https://komarev.com/ghpvc/?username=black-sh33p&label=teacups&color=d584be&style=Flat-Square)</sub>
 
 
 
