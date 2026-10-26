@@ -9,7 +9,7 @@ $$\color{dda5d3}\text{ִֶDni ┆ Ex friends n problematic peeps}$$
  
 
 
-  <sub>![](https://komarev.com/ghpvc/?username=black-sh33p&label=CountingSheep&color=9d82b3&style=Flat-Square)</sub>
+  <sub>![](https://komarev.com/ghpvc/?username=black-sh33p&label=SheepsCounted&color=9d82b3&style=Flat-Square)</sub>
 
 
 $$\color{4f6fa0}\text{ִֶ(⌁° ‸ °⌁)}$$
@@ -19,5 +19,5 @@ $$\color{4f6fa0}\text{ִֶ(⌁° ‸ °⌁)}$$
 $$\color{fdf1fa}\text{seal tweek awwww aww we all cheered}$$
 <p align="center">
   <a href="https://teaandbiscuits.atabook.org/"><img src="https://files.catbox.moe/fovge9.png" width="200"></a>   
-  <a href="https://snoozingsheep.straw.page"><img src="https://files.catbox.moe/2f2sh6.png" width="200"></a>
+  <a href="https://snoozingsheep.straw.page"><img src="https://files.catbox.moe/7c8oh2.png" width="200"></a>
 </p>
