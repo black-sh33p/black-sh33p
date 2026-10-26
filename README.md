@@ -18,6 +18,6 @@ $$\color{4f6fa0}\text{ִֶ(⌁° ‸ °⌁)}$$
 
 $$\color{fdf1fa}\text{seal tweek awwww aww we all cheered}$$
 <p align="center">
-  <a href="https://teaandbiscuits.atabook.org/"><img src="https://files.catbox.moe/44tj0f.png" width="200"></a>   
+  <a href="https://teaandbiscuits.atabook.org/"><img src="https://files.catbox.moe/fovge9.png" width="200"></a>   
   <a href="https://snoozingsheep.straw.page"><img src="https://files.catbox.moe/2f2sh6.png" width="200"></a>
 </p>
